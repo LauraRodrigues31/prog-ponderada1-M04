@@ -31,3 +31,12 @@ https://github.com/user-attachments/assets/056fdd4d-7eae-4f58-9f42-d4cc450a8629
 
 ### Link Tinkercard: https://www.tinkercad.com/things/53QdylmYxSF-ponderada-1-/editel?returnTo=https%3A%2F%2Fwww.tinkercad.com%2Fdashboard 
 
+
+## Ir além: 
+
+https://github.com/user-attachments/assets/132cb32f-cc75-4781-94a4-237d2e692a9e
+
+
+
+
+
